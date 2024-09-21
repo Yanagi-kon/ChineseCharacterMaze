@@ -32,4 +32,5 @@
 ![image](https://github.com/user-attachments/assets/7c7857d7-5675-4be1-a301-7f0419d07f57)
 
 ## 完整文件
-Star后私聊我获取😉
+百度网盘：https://pan.baidu.com/s/146wTrsgBG01501ca7wxMkg
+Star后私聊我获取密码😉
